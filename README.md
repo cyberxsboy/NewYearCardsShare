@@ -3,7 +3,7 @@
 
 我将为您提供2026年马年的60句新年祝福语，包含中文、拼音，帮助您在节日中传递温暖与祝福，也帮助孩子们在双语学习中提升中文能力。
 
-![2026马年新年祝福贺卡](./images/0008.png)
+![2026马年新年祝福贺卡](./images/0001.png)
 
 ## 2026马年新年祝福语——四字、八字、十字（附汉语拼音）
 
@@ -35,7 +35,8 @@
 
 吉祥如意 (Jíxiáng rú yì) — Auspicious and everything as you wish
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音）](https://nrcs.xyz/wp-content/uploads/2026/01/1767494634154-019b86e3-2925-7614-bf88-1d1b73dda05b.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第3张-泥人传说")](https://nrcs.xyz/wp-content/uploads/2026/01/1767494634154-019b86e3-2925-7614-bf88-1d1b73dda05b.png)
+![2026马年新年祝福贺卡](./images/0002.png)
+
 
 ### 2026马年新年祝福语——八字吉祥话
 
@@ -69,7 +70,8 @@
 
 龙马精神至，幸福万年长。 (Lóng mǎ jīngshén zhì, xìngfú wàn nián cháng)
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音）](https://nrcs.xyz/wp-content/uploads/2026/01/1767494613090-019b86e3-2925-7ab8-9810-dd98fa35aec5.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第4张-泥人传说")](https://nrcs.xyz/wp-content/uploads/2026/01/1767494613090-019b86e3-2925-7ab8-9810-dd98fa35aec5.png)
+![2026马年新年祝福贺卡](./images/0003.png)
+
 
 ## 2026新年祝福语——长辈、晚辈、朋友祝福（附拼音）
 
@@ -95,7 +97,8 @@
 
 新的一年，万事顺利，笑口常开！(Xīn de yī nián, wàn shì shùnlì, xiào kǒu cháng kāi!)
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音）](https://nrcs.xyz/wp-content/uploads/2026/01/1767494442964-019b86e0-5137-7234-a579-a7818e283cf1.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第5张-泥人传说")](https://nrcs.xyz/wp-content/uploads/2026/01/1767494442964-019b86e0-5137-7234-a579-a7818e283cf1.png)
+![2026马年新年祝福贺卡](./images/0004.png)
+
 
 ### 2026新年祝福语——晚辈祝福（附拼音）
 
@@ -113,7 +116,8 @@
 
 新的一年，愿您平安如意，天天开心！(Xīn de yī nián, yuàn nín píng’ān rú yì, tiāntiān kāixīn!)
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第6张-泥人传说](https://www.gaofumei.net/wp-content/uploads/2025/08/qingwa-gg.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第6张-泥人传说")](https://www.xn--nly574e.biz/auth/register?code=zI7qvG2n "Orgorg速率最高可达1000Mbps，流畅观看Youtube 4K、TikTok，支持 Windows、Android、iOS、Mac，支持 微信、支付宝 付款！")
+![2026马年新年祝福贺卡](./images/0005.png)
+
 
 愿您的生活如意，事业蒸蒸日上！(Yuàn nín de shēnghuó rú yì, shìyè zhēngzhēng rì shàng!)
 
@@ -121,7 +125,8 @@
 
 愿您新的一年，笑口常开，幸福满满！(Yuàn nín xīn de yī nián, xiào kǒu cháng kāi, xìngfú mǎn mǎn!)
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音）](https://nrcs.xyz/wp-content/uploads/2026/01/1767494713102-019b86e4-4eb6-726f-97b0-5fe7136cbb1c.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第7张-泥人传说")](https://nrcs.xyz/wp-content/uploads/2026/01/1767494713102-019b86e4-4eb6-726f-97b0-5fe7136cbb1c.png)
+![2026马年新年祝福贺卡](./images/0006.png)
+
 
 ### 2026新年祝福语——朋友祝福（附拼音）
 
@@ -145,7 +150,8 @@
 
 一切顺利，马年大发财！(Yīqiè shùnlì, mǎ nián dà fā cái!)
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音）](https://nrcs.xyz/wp-content/uploads/2026/01/1767494961761-019b86e8-5804-7409-8213-06bc37a744a2.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第8张-泥人传说")](https://nrcs.xyz/wp-content/uploads/2026/01/1767494961761-019b86e8-5804-7409-8213-06bc37a744a2.png)
+![2026马年新年祝福贺卡](./images/0007.png)
+
 
 ### 2026新年创意有趣新年祝福语
 
@@ -203,7 +209,8 @@ May the Year of the Horse bring you happiness, success, and a smooth journey ahe
 中文：愿马年带给你幸福、成功和顺利的旅程。  
 拼音：Yuàn mǎ nián dài gěi nǐ xìng fú, chéng gōng hé shùn lì de lǚ chéng.
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音）](https://nrcs.xyz/wp-content/uploads/2026/01/1767494568326-019b86e2-4646-7179-9749-194d8722b14b.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第9张-泥人传说")](https://nrcs.xyz/wp-content/uploads/2026/01/1767494568326-019b86e2-4646-7179-9749-194d8722b14b.png)
+![2026马年新年祝福贺卡](./images/0008.png)
+
 
 ## 2026马年创意有趣新年祝福语
 
@@ -219,6 +226,7 @@ May the Year of the Horse bring you happiness, success, and a smooth journey ahe
 
 5\. 2026年，愿你“马”到成功，事业如马般势不可挡，爱情甜蜜如马蹄声响！让你的生活如马般奔腾，红红火火！
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第10张-泥人传说](https://nrcs.xyz/wp-content/uploads/2025/08/hongxing-gg.jpg "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第10张-泥人传说")](https://www.xn--8qv123c.co/auth/register?code=DadT8U4s "Orgorg速率最高可达1000Mbps，流畅观看Youtube 4K、TikTok，支持 Windows、Android、iOS、Mac，支持 微信、支付宝 付款！")
+![2026马年新年祝福贺卡](./images/0005.png)
+
 
 6\. 过去所有的遗憾都是2026年惊喜的铺垫，愿你马不停蹄地追逐梦想，拼尽全力的每一步都能带来你想要的成功和幸福！
